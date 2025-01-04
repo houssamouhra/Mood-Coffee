@@ -1,4 +1,4 @@
-## ☕ Mood Coffee
+## ☕ MOOD COFFEE
 
 For those who savor the classic Italian brew.
 
