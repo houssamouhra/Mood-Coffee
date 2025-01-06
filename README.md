@@ -1,4 +1,4 @@
-## ☕ MOOD COFFEE
+## ☕ Mood Coffee Project
 
 For those who savor the classic Italian brew.
 
